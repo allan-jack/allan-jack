@@ -1,4 +1,4 @@
-### Hi there, I'm Jack 👋
+# Hi there, I'm Jack 👋
 
 ## I'm a Student, an Athlete, and a Winner
 
