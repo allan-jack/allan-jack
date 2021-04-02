@@ -1,6 +1,6 @@
 # Hi there, I'm Jack 👋
 
-## I'm a Student, an Athlete, and a Winner
+## I'm a Student, an Athlete, and a Friend to All!
 
 - I am currently working towards my Master of Science in Business Analytics at the Brandeis International Business School
 - I’m currently learning everything
